@@ -1,2 +1,4 @@
-# Hub-
-We are here to help and support individuals on how they are going to get back all their lost funds and cryptocurrency 
+# Welcome
+Grand Capital Stock Marketing
+
+Your trusted partner in stock market investments. Build wealth with our expert guidance, advanced tools, and comprehensive portfolio management.
